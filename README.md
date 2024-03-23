@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **Machine Learning, Data Analytics, Physics, and Science**
 - 🔬 Studied Physics at Udayana University, Bali.
-- 📫 How to reach me **gustiagunganom30@gmail.com**
+- 📫 How to reach me **anom.widyartha015@student.unud.ac.id**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
